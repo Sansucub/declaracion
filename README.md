@@ -1,2 +1,2 @@
-# declaracion
+# aceptas?
 for my darling
